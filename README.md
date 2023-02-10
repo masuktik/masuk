@@ -1,0 +1,2 @@
+# PRAKERJA-
+Cek gelombang
